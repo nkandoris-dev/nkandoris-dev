@@ -49,6 +49,12 @@ Independent Case Study | Data Analyst (Healthcare Expenditure in Africa) | 2025 
 
 •	Google Data Analytics Professional Certificate | Google (2026)
 
+<img width="340" height="340" alt="Coursera Badge - Google Data Analytics 2026 (2)" src="https://github.com/user-attachments/assets/51f6648b-581d-473c-9240-255464849df7" />
+
+<img width="957" height="804" alt="image" src="https://github.com/user-attachments/assets/925eaa28-4b9e-42d7-907f-edf672a9c71c" />
+
+https://www.credly.com/badges/ad88830e-4804-47b0-828a-8b3ab9838e53
+
 •	Future-Focused Global Leadership Programme | INSEAD, Fontainebleau, France (2024)
 
 •	Fintech Certification | HarvardX (2023)
